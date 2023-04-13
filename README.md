@@ -1,4 +1,4 @@
-Hi, I’m @Kalkatral
+Hi, I’m @potassium-shot
 I'm currently learning game design and programming
 
 # Come into MY palace, +DISRESPECT ME, call ME cringe ?
